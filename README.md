@@ -1,4 +1,4 @@
-## ismaileren.de/
+## ismaileren.de
 
 https://www.xing.com/profile/DrIsmail_Eren/web_profiles?nwt_nav=profile
 
